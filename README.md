@@ -8,7 +8,7 @@
 
 ## 🔗 Game Preview
 
-👉 [Click here to open the full preview](https://www.explorerslots.com/preview.html?slug=New-Teen-Patti-Master)
+👉 [Teen Patti Master]([https://www.explorerslots.com/preview.html?slug=New-Teen-Patti-Master](https://www.yonostore.app/teen-patti-master))
 
 ---
 
@@ -33,4 +33,4 @@ Explore all games, bonuses, and app previews here:
 ## 👤 Maintained by Aestero-UI
 
 This GitHub SEO page is part of a backlink strategy for  
-[ExplorerSlots.com](https://www.explorerslots.com), built and maintained by **Aestero-UI**.
+[Yono Store](https://www.yonostore.app/), built and maintained by **Aestero-UI**.
